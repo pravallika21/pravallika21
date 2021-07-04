@@ -9,8 +9,6 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **pravallikavutukuri365@gmail.com**
-
 - ⚡ Fun fact **I THINK I AM FUNNY!**
 
 <h3 align="left">Connect with me:</h3>
